@@ -15,3 +15,5 @@
 • Criatividade
 
 ⌚ Quando estou livre gosto de fazer alguma coisa com meus amigos, ouvir músicas que gosto, jogar qualquer bobeira ou assistir alguma série. 
+
+kkkkkkkkkkk
